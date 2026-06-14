@@ -1,1 +1,1 @@
-Listing a few random features of Intend System
+Some good points regarding Intend System
