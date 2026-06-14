@@ -1,1 +1,1 @@
-Some good points regarding Intend System
+Some good documents about Intend System
